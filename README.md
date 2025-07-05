@@ -4,7 +4,7 @@
 
 Verantwortlich für die Datenverarbeitung im Rahmen dieser App ist:  
 **Ab in die Pause**  
-almonaoarnick@gmail.com 
+info@abindiepause.com
 
 ---
 
