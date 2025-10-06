@@ -60,7 +60,7 @@ Betroffene Nutzer haben jederzeit das Recht auf:
 - Datenübertragbarkeit  
 - Widerspruch gegen die Verarbeitung  
 
-Anfragen bitte an: **almonaoarnick@gmail.com**
+Anfragen bitte an: **info@abindiepause.com**
 
 ---
 
