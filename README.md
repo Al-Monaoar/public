@@ -3,7 +3,7 @@
 ## 1. Verantwortlicher
 
 Verantwortlich für die Datenverarbeitung im Rahmen dieser App ist:  
-**Ab in die Pause**  
+**Nabil Al-Monaoar**  
 info@abindiepause.com
 
 ---
